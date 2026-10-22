@@ -240,4 +240,4 @@ Kill Knight is available as a **full free version** with all features and update
 Download **Kill Knight** now and dive into a world of intense action and challenging gameplay. Join the fight and prove your skills as a knight!
 
 ---
-**Last updated:** 2026-10-22 13:32:14 UTC
+**Last updated:** 2026-10-22 18:21:09 UTC
